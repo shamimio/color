@@ -1,3 +1,0 @@
-<article></article><input data="dot"><a href="https://tinyurl.com/yapngl7y">Game 6 Astros vs Dodgers </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>
-  <article></article><input data="dot"><a href="https://tinyurl.com/yd58k3e8">Astros vs Dodgers </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>
- <article></article><input data="dot"><a href="https://tinyurl.com/ycqlovh4">MLB world series 2017 Astros vs Dodgers </article><article>li</article><article>ve</article><article> st</article><article>r</article><article>ea</article>m</a></input>
